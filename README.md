@@ -2,9 +2,9 @@
 
 📞 Telefone:(11) 941493907
 
-✒️ Escola: J
+✒️ Escola: Jose Scaramelli
 
-
+📫 E-mail: Isabenka@gmail.com
 
 
 
